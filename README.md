@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=e83553&plastic&label=pageviews)
+:trollface:ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=e83553&plastic&label=pageviews)
 ㅤ
 <p align="center">
 <img src="https://github.com/sproutsweetly/sproutsweetly/blob/52b6262f70d5741f306b25d0a4f18f23a3b44648/Untitled344_20260227162347__fliter--cherry-icecream__channel--red__mode--normal.png" width="400" height="600" />
