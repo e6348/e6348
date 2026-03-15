@@ -16,4 +16,4 @@
 
 ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&plastic&label=pageviews) <img src="https://github.com/e6348/e6348/blob/3813168d77d168fc709ac02fe5ec5147c57c5b60/d6v4vff-2855f3e8-a61c-4c83-848f-3c9b06e652e8.gif" width="110" alt="rocketchu icon :D">
 
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=f7ce8c&bar_color_cover=false) <img src="https://github.com/e6348/e6348/blob/3a8d0abeddea73712ca3cb2fe06869eae20b6714/lightning-rocketchu.gif" width="85" alt="rocketchu gif :3">
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=f7ce8c&bar_color_cover=false)<img src="https://github.com/e6348/e6348/blob/3a8d0abeddea73712ca3cb2fe06869eae20b6714/lightning-rocketchu.gif" width="85" alt="rocketchu gif :3">
