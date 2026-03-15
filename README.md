@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  $\color{#000000}{\textsf{hi my name is emily. okay read my rentry page!!!!! anyways,,, i love}}$ $\color{#ff0000}{\textsf{neopets}}$ and $\color{#ff0000}{\textsf{rocketchu ♡}}$ and $\color{#ff0000}{\textsf{my friends, specifically nex, sandro and nine :D}}$. you guys are $\color{#ff0000}{\textsf{very cool.}}$
+  $\color{#000000}{\textsf{hi my name is emily. okay read my rentry page!!!!! anyways,,, i love}}$ $\color{#ff0000}{\textsf{neopets}}$ and $\color{#ff0000}{\textsf{rocketchu ♡}}$ and $\color{#ff0000}{\textsf{my friends, specifically nex, sandro and nine :D}}$. you guys are $\color{#ff0000}{\textsf{so cool And pop n' fresh }}$ /ref/
 </p>
   
 <p align="center">
