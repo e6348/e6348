@@ -1,31 +1,23 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=e83553&plastic&label=pageviews)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&plastic&label=pageviews)
 ㅤ
 <p align="center">
-<img src="https://github.com/sproutsweetly/sproutsweetly/blob/52b6262f70d5741f306b25d0a4f18f23a3b44648/Untitled344_20260227162347__fliter--cherry-icecream__channel--red__mode--normal.png" width="400" height="600" />
+<img src="https://github.com/e6348/e6348/blob/34527d6436ddfaf2717a07d992100e55b8d015f7/a55020a3%20(1).gif" width="500" height="700" />
+</p>
+
+  
+<p align="center">
+<img src="https://github.com/e6348/e6348/blob/34527d6436ddfaf2717a07d992100e55b8d015f7/a91bd6005b476a60edcd3a33f51e8adb%20(1).gif" width="400" height="600" />
 </p>
 
 <p align="center">
-<img src="https://github.com/sproutsweetly/sproutsweetly/blob/c3ab9db8d47921ec42177f738dc1e4c87ae1c045/Untitled347_20260227172833__fliter--cherry-icecream__channel--red__mode--normal.png" width="500" height="700" />
-</p>
-
-<p align="center">
-  $\color{#e6274d}{\textsf{"ㅤever so slightly, daily and nightly - in little ways, everything staysㅤ"}}$
-</p>
-
-<p align="center">
-$\color{#f06832}{\textsf{anyㅤ prnsㅤㅤ*}}$
-</p>
-
-<p align="center">
-$\color{#fc8b3f}{\textsf{ㅤㅤ𓏬ㅤ⸼ㅤㅤㅤㅤc+h ㅤㅤㅤfreelyㅤ•⩊•}}$
-</p>
-
-<p align="center">
-$\color{#ffd34f}{\textsf{sandroㅤㅤ♡ㅤㅤnexㅤㅤ♡ㅤㅤnineㅤㅤㅤi love u guysㅤ<3}}$
+  $\color{#000000}{\textsf{hi my name is emily. okay read my rentry page!!!!! anyways,,, i love}}$ $\color{#ff0000}{\textsf{neopets}}$ and $\color{#ff0000}{\textsf{rocketchu ♡}}$ and $\color{#ff0000}{\textsf{my friends, specifically nex, sandro and nine :D}}$. you guys are $\color{#ff0000}{\textsf{very cool.}}$
 </p>
   
 <p align="center">
-  <img src="https://github.com/sproutsweetly/sproutsweetly/blob/3e2abbccf97816ec169a7889da2259d4a38b4a5e/5axck3.png" />
+  <img src="https://github.com/e6348/e6348/blob/34527d6436ddfaf2717a07d992100e55b8d015f7/afda91cb.png" /> <img src="https://github.com/e6348/e6348/blob/34527d6436ddfaf2717a07d992100e55b8d015f7/d56.png" /> <img src="https://github.com/e6348/e6348/blob/accd04cb398dd30b8a61fa9821604cec546116dc/tumblr-c35ab7db7fafde27e76ea18cbe308991-5100b445-100.gif" />
+  
 <p align="center">
-<img src="https://github.com/sproutsweetly/sproutsweetly/blob/52b6262f70d5741f306b25d0a4f18f23a3b44648/Untitled344_20260227163239__fliter--cherry-icecream__channel--red__mode--normal.png" width="400" height="600" />
+<img src="https://github.com/e6348/e6348/blob/34527d6436ddfaf2717a07d992100e55b8d015f7/a55020a3%20(1).gif" width="500" height="700" />
 </p>
+
+<img src="https://github.com/e6348/e6348/blob/ab620fbfc87fbdf16b63c1d5207dd7c7498bd859/Screenshot_20260314_200906_Chrome.jpg" /> not even a day old btw 😭
