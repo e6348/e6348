@@ -20,4 +20,4 @@
 <img src="https://github.com/e6348/e6348/blob/34527d6436ddfaf2717a07d992100e55b8d015f7/a55020a3%20(1).gif" width="500" height="700" />
 </p>
 
-<img src="https://github.com/e6348/e6348/blob/ab620fbfc87fbdf16b63c1d5207dd7c7498bd859/Screenshot_20260314_200906_Chrome.jpg" /> not even a day old btw 😭
+<img src="https://github.com/e6348/e6348/blob/ab620fbfc87fbdf16b63c1d5207dd7c7498bd859/Screenshot_20260314_200906_Chrome.jpg" /> not even a day old btw 😭 lil sis born in march 14 2026
