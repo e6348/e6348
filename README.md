@@ -7,7 +7,6 @@
     <tr>
       <td>
         <br>
-          <img src="https://github.com/e6348/e6348/blob/3813168d77d168fc709ac02fe5ec5147c57c5b60/d6v4vff-2855f3e8-a61c-4c83-848f-3c9b06e652e8.gif" width="150" alt="rocketchu icon :D">
         ㅤhi my name is emily. :U read my rentry page!!! NOW!
          <br>
       </td>
