@@ -5,7 +5,7 @@
     <tr>
       <td>
         <br>
-        ㅤhi my name is emily. she/her pronouns !!! ^u^
+        ㅤhi my name is emily. read my rentry page. NOW!
          <br>
       </td>
     </tr>
