@@ -5,7 +5,7 @@
     <tr>
       <td>
         <br>
-        ㅤhi my name is emily. :U she/her **only**!!!
+        ㅤhi my name is emily. she/her pronouns !!! ^u^
          <br>
       </td>
     </tr>
