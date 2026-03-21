@@ -5,7 +5,7 @@
     <tr>
       <td>
         <br>
-        ㅤhi my name is emily. :U read my rentry page!!! NOW!!!!
+        ㅤhi my name is emily. :U she/her **only**!!!
          <br>
       </td>
     </tr>
