@@ -14,4 +14,4 @@ emilyㅤ<img src="https://files.catbox.moe/vq7nwd.png" width="40">ㅤshe ﾉ her
 </p>
 
 
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ[rentry](https://rentry.co/ROCKETCHU) ㅤㅤ[sendㅤdrawings !!](https://rocketchu.straw.page)
+ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ[rentry](https://rentry.co/ROCKETCHU) ㅤㅤ[sendㅤdrawings !](https://rocketchu.straw.page)
