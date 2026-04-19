@@ -3,7 +3,7 @@
     </p>
 
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ <img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=b3b3b3&plastic&label=pageviews" alt="pageviews thingy">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=b3b3b3&plastic&label=pageviews" alt="pageviews thingy">
 
 <p align="center">
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
