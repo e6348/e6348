@@ -1,17 +1,7 @@
-<p align="center">
-<img src="https://files.catbox.moe/c9gnk6.jpg" width="210">
-    </p>
+<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&plastic&label=pageviews" alt="pageviews thingy">
 
-ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=c468f2&plastic&label=pageviews" alt="pageviews thingy">
+Are Lennys clever? ![Aisha gif by Neopets](https://files.catbox.moe/pzwkvr.gif "Aisha gif by Neopets")
 
-<p align="center">
-<img src="https://files.catbox.moe/1deban.gif" width="250">
-</p>
+${\textsf{\color{#FF0064}Nooooo!!!! Aishas are much smarter!!!}}$<p>
 
-<p align="center">
-emilyㅤ<img src="https://files.catbox.moe/vq7nwd.png" width="40">ㅤshe ﾉ her
-</p>
-
-
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ[rentry](https://rentry.co/ROCKETCHU) ㅤㅤ[sendㅤdrawings !](https://rocketchu.straw.page)
+[MY PAGE!!!](https://rentry.co/ROCKETCHU) ☆ [Send drawings :D](https://rocketchu.straw.page) ☆ [MY NEOPET'S PAGE!!](https://www.neopets.com/~kyusukii)
