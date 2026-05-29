@@ -9,3 +9,5 @@ ${\textsf{\color{#FF0064}Byyyyyyeeeeeeee!}}$<p>
 Sorry I cant accept neofriend requests at the moment :-( WAIT A BIT!!!
 
 ![Pink Aisha gif by Neopets](https://files.catbox.moe/g1hctc.gif "Pink Aisha gif by Neopets") I luv Aishas <3
+
+[about aishas and why theyre AWESOME!!!](https://www.neopets.com/aisha/)
