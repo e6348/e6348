@@ -2,12 +2,7 @@
 
 my name is emily ^_^ <img src="https://files.catbox.moe/avb7lw.gif" width="180" alt="Description">
 
-<a href="https://thebeatles.atabook.org">
-  <img src="https://files.catbox.moe/3s3671.gif" alt="atabook" width="140">
-</a>
-<- SIGN MY ATABOOK!!!
-
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+[新book](https://thebeatles.atabook.org) ⠀ ⠀ ⠀ ⠀
 
 <img src="https://files.catbox.moe/2whasm.gif" width="120" alt="rocker button">⠀<img src="https://files.catbox.moe/wctv5l.gif" width="120" alt="w00t! button">
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
