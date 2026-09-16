@@ -2,7 +2,7 @@
 
 my name is emily ^_^ <img src="https://files.catbox.moe/avb7lw.gif" width="180" alt="Description">
 
-[新book](https://thebeatles.atabook.org)ㅤ[strawpage](https://jorgegonzalez.straw.page)
+[新book](https://thebeatles.atabook.org) [strawpage](https://jorgegonzalez.straw.page)
 
 <img src="https://files.catbox.moe/2whasm.gif" width="120" alt="rocker button">⠀<img src="https://files.catbox.moe/wctv5l.gif" width="120" alt="w00t! button">
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
