@@ -1,3 +1,5 @@
+<img src="https://files.catbox.moe/47g36n.jpg" align="right" width="400" alt="placeholder">
+
 ![div](https://files.catbox.moe/6cre8n.gif)
 
 my name is emily ^_^ <img src="https://files.catbox.moe/avb7lw.gif" width="180" alt="Description">
