@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/47g36n.jpg" align="right" width="700" alt="placeholder">
+<img src="https://files.catbox.moe/47g36n.jpg" align="right" width="600" alt="placeholder">
 
 ![div](https://files.catbox.moe/6cre8n.gif)
 
