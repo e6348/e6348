@@ -1,19 +1,28 @@
-<img src="https://files.catbox.moe/47g36n.jpg" align="right" width="480" alt="placeholder">
-
-![div](https://files.catbox.moe/6cre8n.gif)
-
-my name is emily ^_^ <img src="https://files.catbox.moe/avb7lw.gif" width="180" alt="Description">
-
-[新book](https://thebeatles.atabook.org) [strawpage](https://jorgegonzalez.straw.page)
-
-<img src="https://files.catbox.moe/2whasm.gif" width="120" alt="rocker button">⠀<img src="https://files.catbox.moe/wctv5l.gif" width="120" alt="w00t! button">
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
-
-<img src="https://files.catbox.moe/3nro06.png" width="161" alt="los prisioneros stamp"> <img src="https://files.catbox.moe/9oioet.jpg" width="165" alt="i love music stamp">
+<img src="https://files.catbox.moe/q22vis.jpg" align="right" width="430" alt="placeholder"> <br>
 
 
+<table>
+    <tr>
+      <td>
+  
+<img src="https://files.catbox.moe/pzii7u.png" width="430" alt="header"> <br>
 
-<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews" alt="pageviews thingy" >⠀ ⠀⠀thank you <3
+  
+<table>
+    <tr>
+      <td>
 
-![div](https://files.catbox.moe/6cre8n.gif)
+<img src="https://files.catbox.moe/2whasm.gif" width="80" alt="rocker button">ㅤㅤemilyㅤㅤㅤshe/herㅤ <br>
+infj 4w5 479ㅤㅤwhisper to interactㅤ<img src="https://files.catbox.moe/wctv5l.gif" width="80" alt="w00t! button"> <br>
+
+  </table>
+  
+[新book (guest-book)](https://thebeatles.atabook.org) <br>
+<br>
+<img src="https://files.catbox.moe/cwsulq.gif" width="430" alt="divider"> <br>
+
+<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews" alt="pageviews counter" >⠀ ⠀⠀thank you <3 <br>
+
+<img src="https://files.catbox.moe/kef5a4.png" width="430" alt="footer"> <br>
+
+  </table>
