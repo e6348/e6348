@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/q22vis.jpg" align="right" width="380" alt="placeholder"> <br>
+<img src="https://files.catbox.moe/q22vis.jpg" align="right" width="370" alt="placeholder"> <br>
 
 
 <table>
