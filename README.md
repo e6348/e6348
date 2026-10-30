@@ -10,7 +10,7 @@
       <td>
 
 <img src="https://files.catbox.moe/2whasm.gif" width="80" alt="rocker button">ㅤㅤemilyㅤㅤㅤshe/herㅤ <br>
-infj 4w5 479ㅤㅤwhisper to talk!ㅤ<img src="https://files.catbox.moe/wctv5l.gif" width="80" alt="w00t! button"> <br>
+infj 4w5 479ㅤㅤwhisper to interact!ㅤ<img src="https://files.catbox.moe/wctv5l.gif" width="80" alt="w00t! button"> <br>
 
   </table>
   
