@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/ezpznu.png" align="right" width="570" alt="macca">
+<img src="https://files.catbox.moe/95l1ix.png" align="left" width="370" alt="macca">
 
   <table>
     <tr>
