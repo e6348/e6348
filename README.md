@@ -17,6 +17,7 @@ infj 4w5 479ㅤㅤwhisper to interact!ㅤ<img src="https://files.catbox.moe/wctv
   </table>
   
 [sign my 新book (guest-book)](https://thebeatles.atabook.org) <br>
+[sign my strawpage](https://https://tehbeatles.straw.page) <br>
 <br>
 <img src="https://files.catbox.moe/cwsulq.gif" width="430" alt="divider"> <br>
 
