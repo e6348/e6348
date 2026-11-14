@@ -50,7 +50,7 @@ infj 4w5 479ㅤㅤ<img src="https://files.catbox.moe/2whasm.gif" width="80" alt=
   </details>
       <br>
     
-<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews" alt="pageviews counter">ㅤ<-ㅤthankㅤyouㅤ♡ ㅠ⩊ㅠ <br>
+<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews" alt="pageviews counter">ㅤ<-ㅤthankㅤyouㅤ♡ㅤㅠ⩊ㅠ <br>
 <br>
 
 <img src="https://files.catbox.moe/ez24fl.png" width="110" alt="mac n cheese stamp">ㅤ<img src="https://files.catbox.moe/77z9va.png" width="110" alt="hotdog stamp">ㅤ<img src="https://files.catbox.moe/fhtznd.png" width="110" alt="chicken nugget stamp">
