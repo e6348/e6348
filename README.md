@@ -4,7 +4,7 @@
 <img src="https://files.catbox.moe/j2ukxj.webp" width="700" alt="by @plurelia on tumblr">
 <p>
   <br>
-<img src="https://files.catbox.moe/maokm5.png" width="580" align="left" alt="drawn by me!!">
+<img src="https://files.catbox.moe/maokm5.png" width="520" align="left" alt="drawn by me!!">
   
   <table>
   <tr>
