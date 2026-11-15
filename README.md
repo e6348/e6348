@@ -10,7 +10,7 @@
   <tr>
     <td>
       <br>
-      <img src="https://files.catbox.moe/hiwesa.png" width="380" align="center" alt="top bun divider">
+      <img src="https://files.catbox.moe/hiwesa.png" width="330" align="center" alt="top bun divider">
       <br>
       <br>
 <img src="https://files.catbox.moe/wctv5l.gif" width="80" alt="w00t! button">ㅤemilyㅤㅤට⩊ටㅤㅤsheㅤﾉㅤher
@@ -60,7 +60,7 @@ infj 4w5 479ㅤㅤ<img src="https://files.catbox.moe/2whasm.gif" width="80" alt=
 <img src="https://files.catbox.moe/ez24fl.png" width="110" alt="mac n cheese stamp">ㅤ<img src="https://files.catbox.moe/77z9va.png" width="110" alt="hotdog stamp">ㅤ<img src="https://files.catbox.moe/fhtznd.png" width="110" alt="chicken nugget stamp">
 <br>
 <br>
-<img src="https://files.catbox.moe/gkszf2.png" width="380" align="center" alt="bottom bun divider">
+<img src="https://files.catbox.moe/gkszf2.png" width="330" align="center" alt="bottom bun divider">
 <br>
 <br>
 </table>
