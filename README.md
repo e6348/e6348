@@ -18,8 +18,6 @@
       <br>
 infj 4w5 479ㅤㅤ<img src="https://files.catbox.moe/2whasm.gif" width="80" alt="rocker button">ㅤw2i ﹐c+h freely
       <br>
-      <br>
-      <a href="https://users.smartgb.com/g/g.php?a=s&i=g19-03589-d0">sign my guestbook!</a>
 <br>
       <br>
       <img src="https://files.catbox.moe/azsr9p.png" width="110" alt="fries stamp">ㅤ<img src="https://files.catbox.moe/k1hyt7.png" width="110" alt="pizza stamp">ㅤ<img src="https://files.catbox.moe/i6vbf1.png" width="110" alt="burger stamp">
