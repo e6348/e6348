@@ -41,19 +41,11 @@ infj 4w5 479ㅤㅤ<img src="https://files.catbox.moe/2whasm.gif" width="80" alt=
         </details>
 <br>
 <details>
-  <summary> other things （𓈒ʚ̴̶̷̷̥ ⩊ ʚ̴̶̷̷𓈒） </summary>
-    i do not have much to say about me! i speak both
-        <br>
-        spanish and english! and i only follow my
-        <br>
-        friends on github, sorry! ^_^
+  <summary> friends (˶ˆ꒳ˆ˵) </summary>
+    ᦏ♡᪔ 　<a href="https://github.com/nine-integer">nine</a> ﹐<a href="https://github.com/prwttypup">sora</a> ﹐<a href="https://github.com/joosbocks">joos</a> ﹐<br>
+  <a href="https://github.com/xxjardxgalf-yaoi69xx">marshall</a> ﹐<a href="https://github.com/HANASATOMINORIDESU">aubrey</a> ﹐<a href="https://github.com/catastrophe99">pierce</a> <br>
+  ﹐<a href="https://github.com/RUBINATOR2763">ruby</a> ﹐<a href="https://github.com/ge0rgemccartney">bug</a>
   <br>
-  <br>
-  im really interested in the beatles, yellow submarine,
-  <br>
-  and los prisioneros!
-  <br>
-  my favorites are john and paul you see... :-D
   </details>
       <br>
     
